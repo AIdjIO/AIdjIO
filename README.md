@@ -1,2 +1,0 @@
-- 👋 Hi, I’m @AIdjIO, I come from a different timeline
-- 👀 I’m interested in Skynet
